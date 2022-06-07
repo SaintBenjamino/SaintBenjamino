@@ -9,6 +9,7 @@
 ### I live in an average sized megafortress with a deluxe dungeon and two ancient blue dragons to gaurd it.
 ### Their names are Abbott and Costello, like the aliens in Arrival.
 ### A GREAT movie which you should watch.
+### I play a lot of DND, mostly as the DM
 ### My UVU buddies are Ty, Marie, Jared, Anissa, Shantelle, and that loud guy with the tiny sideburns who I cannot remember his name for the life of me.
 ### I like OK GO and similair music, but basically every type of music is good.
 ### But yeah thats me. 
