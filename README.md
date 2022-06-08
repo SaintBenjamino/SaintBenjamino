@@ -16,7 +16,8 @@
 ### I like OK GO and similair music, but basically every type of music is good.
 ### But yeah thats me. 
 
-[Tux, the Linux mascot](/assets/images/tux.png)
+https://preview.redd.it/okaj8llwwzn81.png?auto=webp&s=d17bfd425ca4200949f6f2e8c230e6d8160e69ad
+
 <!--**SaintBenjamino/SaintBenjamino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 -Hello people!👋
